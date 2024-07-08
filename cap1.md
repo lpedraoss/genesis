@@ -34,7 +34,7 @@ Tardo mucho tiempo en recuperarse, pero lo logro y al despertar se dio cuenta qu
 Philips decidió hacerle una tumba con la marca de un traidor, y con una frase en su lápida: “El traidor ha de ser traicionado”, con su fecha de nacimiento y de su muerte. Luego decidió irse a su hogar para seguir haciendo experimentos para desarrollar su GRAN INVENTO.
 
 
- Philip decidió irse a un lugar más seguro para su invento, decidió irse a un desierto, y así mejor concentrarse en salvar al planeta en el futuro, así que se trasladó a un desierto de África, paso más de 400 años cuando observo que el ser humano estaba evolucionando a nivel intelectual, así que decidió infiltrarse para observarlos, y observo que habían muchas guerras y tomó la decisión de devolverse para no intervenir en ellas de nuevo.
+Philip decidió irse a un lugar más seguro para su invento, decidió irse a un desierto, y así mejor concentrarse en salvar al planeta en el futuro, así que se trasladó a un desierto de África, paso más de 400 años cuando observo que el ser humano estaba evolucionando a nivel intelectual, así que decidió infiltrarse para observarlos, y observo que habían muchas guerras y tomó la decisión de devolverse para no intervenir en ellas de nuevo.
 
 
 Faxder le propuso a Philip que crearan una dimensión diferente, un universo aparte, Philip aceptó esa idea pero le tomo 1000 años en crear un campo de energía que creara materia y además que almacenara y guardara información (cualquier objeto, animal o humano que entrara en esa dimensión), pero él se preguntaba porque aún no podía crear su GRAN INVENTO ( una máquina que separara el CO2 y lo convirtiera en Oxigeno y el carbono que se almacenara para luego crear fibra de carbono ) eso se le dificultaba demasiado.
@@ -56,3 +56,7 @@ Faxder se sentía muy feliz por haber ganado la guerra y con ello exterminado  a
 
 
 Faxder intento interrumpir el escape pero  al atacar a las personas apareció Philip con un ejército incontable y ataco a faxder y a su ejército mientras las personas escapaban, y al pasar el ultimo ser vivo a la otra dimensión, Philip activó una maquina muy grande que estaba en el cielo y de ella se creó un agujero negro absorbiendo todo el planeta, y al crecer demasiado absorbió a todo el universo destruyéndolo todo. 
+
+[Ir al Índice](README.md)
+
+[Ir al Capítulo II](cap2.md)
