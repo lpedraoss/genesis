@@ -1,4 +1,7 @@
-# Índice del Libro
+# Génesis del inmortal
+![portada ](/img/indice.jpeg)
+
+## Índice del Libro
 
 1. [Capítulo 1](cap1.md)
 2. [Capítulo 2](cap2.md)

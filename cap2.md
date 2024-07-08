@@ -1,5 +1,8 @@
 # CAPÍTULO II
+![capitulo 1](/img/cap2.jpeg)
 ## Retroceso
+
+
 
 En un momento todo se sentía perdido, pero algo sorprendente pasó,  Philip cerró los ojos y al abrirlos observó alrededor y lo único que había era soledad. Él se encontraba perdido en el tiempo, no sabía en qué época estaba, pero al instante se dio cuenta que algo lo había trasladado al principio del todo, nunca supo que fue, o porque estaba ahí.
 En un parpadear apareció una luz incandescente y de ella una explosión, siguiendo a extenderse esa gran energía creando materia y en  ella el universo entero; Philip se sorprendió de lo rápido que se creó el universo, él  tenía demasiadas preguntas, pero no encontraba como responderlas. Paso mucho tiempo, y él no reaccionaba, él trataba de conseguir vida, o inicios de vida en algún lugar del universo pero no la encontraba. Galaxias  incontables y no había nada, Philip estaba ya rendido ante esa idea, pero decidió buscar unas galaxias más y en una de ellas encontró el Planeta Tierra, entonces decidió ir a ella, pero no encontraba nada, solo volcanes en erupción y  nubes de humo, él no entendía porque estaba así la tierra, y, como haría para hacer vida en ella.

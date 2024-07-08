@@ -1,5 +1,6 @@
 # Capítulo III
-## El Inexistente
+![capitulo 3](/img/Designer(2).jpeg)
+## Inexistente
 
 La humanidad estaba confusa por la aparición de su verdadero creador, pero por el paso del tiempo se acostumbraron y decidieron aceptar a su creador para que los guiara a la gloria en sus vidas, entonces Philip también pensó en su ser joven (el pequeño Philip) y decidió enseñarle casi todo lo que él había aprendido en el transcurso de su existencia, todo estaba a la perfección, los humanos habían comprendido el sentido de la vida, y Philip  guiándolos a todos iban a un futuro diferente, ya Philip  no sabía que iba pasar, pues ya todo había cambiado.
 

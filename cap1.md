@@ -1,5 +1,9 @@
 # CAPÍTULO I
+![capitulo 1](/img/cap1.jpeg)
 ## PERDIDO EN EL TIEMPO
+
+
+
 El mundo estaba muriendo, así que el ser humano decidió hacer algo de inmediato, más de 100 de los mejores científicos del planeta se habían reunido en Europa  para poder salvar el mundo, dieron muchas ideas pero solo una se destacó entre todos ellos, la cual era que debían crear una máquina del tiempo y así poder remediar el problema desde el principio, duraron 12 años construyendo este aparato, ya era el año 2075 y entonces empezaron a probar aquella máquina, mandaban objetos en el tiempo, pero nunca las recuperaban, se dieron cuenta que una vez que se mandara cualquier cosa no se podría volver a traer, era una puerta sin regreso, pocos querían entrar en aquella máquina, entonces un día enviaron a una animal para que todo fuera seguro, y funciono, entonces decidieron celebrar aquella creación de espacio-tiempo, esta máquina era una maravilla; cuando estaban celebrando un joven científico se embriago demasiado y se fue a ver la máquina del tiempo, pero por accidente entro en ella y toco un botón que lo llevaría 3000 años atrás, todos se dieron cuenta de que aquel joven entro en aquella maquina así que decidieron evitar que se desvaneciera pero fue en vano él ya se había ido.
 
 
